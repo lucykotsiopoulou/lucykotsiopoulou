@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @lucykotsiopoulou
 - 👀 I’m interested in supernova neutrinos and witches.
-- 🌱 I’m currently learning how calculate neutrino differential rate interactions.
+- 🌱 I’m currently learning how to calculate neutrino differential rate interactions.
 - 💞️ I’m looking to collaborate on supernova neutrinos!
-- 📫 How to reach me: Insta: @lucykotsiopoulou , Emnail: l.kotsiopoulou@sms.ed.ac.uk
+- 📫 How to reach me: Insta: @lucykotsiopoulou , Email: l.kotsiopoulou@sms.ed.ac.uk
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I can flare my nostrils in time to music.
 
